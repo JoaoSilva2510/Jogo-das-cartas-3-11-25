@@ -1,0 +1,1 @@
+# Jogo-das-cartas-sim-de-novo-dia-20-10-2025
